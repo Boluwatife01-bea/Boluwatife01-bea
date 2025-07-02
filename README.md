@@ -1,7 +1,8 @@
  
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Poppins&duration=8000&pause=2000&color=FFD700&center=true&vCenter=true&width=435&lines=Hi,+I+Am+Bolu_+Nice+To+Meet+You;Welcome+to+My+World,+Cheers)](https://git.io/typing-svg)
 
-![Typing](https://imgur.com/a/XQPftLB)
+![Typing Lady](https://i.imgur.com/RULH5u7.gif)
+
 
 
  
