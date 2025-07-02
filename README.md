@@ -2,7 +2,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Poppins&duration=8000&pause=2000&color=FFD700&center=true&vCenter=true&width=435&lines=Hi,+I+Am+Bolu_+Nice+To+Meet+You;Welcome+to+My+World,+Cheers)](https://git.io/typing-svg)
 
 <img src="https://media.tenor.com/images/24a7d581987d982ba8e1508f59f339b7/tenor.gif" width="200" height="200">
-)
+
 
  
   
